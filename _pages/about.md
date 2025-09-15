@@ -13,7 +13,7 @@ Zhaohui Wang, with a research foucs on Aeronautical and Astronautical Science an
 
 Education
 ======
-2024.09-(now) D.E. Beijing Aerospace Propulsion Research Institute
+2024.09-2029.06 D.E. Beijing Aerospace Propulsion Research Institute (expected)
 
 2020.09-2024.06 B.E. University of Science and Technology Beijing, Logistics Engineering
 
